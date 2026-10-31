@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @atom39crypto
 - 👀 I’m interested in AI/ML
-- 🌱 I’m currently learning Bachalor Of Computer Application
+- 🌱 I’m currently learning Masters Of Computer Application
 - 💞️ I’m looking to collaborate on AI Resarch
 - 📫 How to reach me shounak.das.career@gmail.com
 - 😄 Pronouns: His/Him
